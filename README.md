@@ -1,0 +1,1 @@
+no moc nečum
